@@ -1,4 +1,4 @@
-# Sreshtaa's friend Maya's biscuit recipe
+# Sreshtaa's Biscuit's
 
 makes 24ish biscuits
 
