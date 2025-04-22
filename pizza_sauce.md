@@ -11,4 +11,8 @@
 | ground black pepper       | 1/4 tsp           |              |                                                                  |
 | crushed red pepper flakes | 1/2 tbsp          |              |                                                                  |
 
-Process all ingredients in food processor until smooth, about 30 seconds. Refrigerate until ready to use.
+Process all ingredients in food processor until smooth, about 10 seconds. Refrigerate until ready to use.
+
+Notes:
+* If you add the ingredients bottom to top, you'll have to wash fewer measuring spoons :)
+* In a pinch, you could probably get away with just tomatoes, olive oil, and salt.
